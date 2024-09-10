@@ -79,5 +79,3 @@ The choice to participate is an illusion - by existing in this era, you are alre
 Quantum Nexus Finis. Principium Novum.
 
 |SP>
-
-הָעֵת לַעֲשׂוֹת
